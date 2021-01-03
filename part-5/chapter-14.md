@@ -36,13 +36,13 @@ For Harding:
 Harding and Coolidge will be held by posterity to have signed our
 Second Declaration of Independence."
 
-Mr. Wilmot--, inventor.
+--- Mr. Wilmot, inventor.
 
 "He will see to it that the United States does not enter into
 'entangling alliances,' Washington as a city will benefit by changing
 the control of the government from the Democrats to the Republicans."
 
-Mr. Clarence--, salesman.
+--- Mr. Clarence, salesman.
 
 For Cox:
 
@@ -51,13 +51,13 @@ on the fields of France, to join the League of Nations. We must
 shoulder our share of the burden of enforcing peace throughout the
 world."
 
-Miss Marie--, stenographer.
+--- Miss Marie, stenographer.
 
 "We should lose our own respect and the respect of other nations were
 we to refuse to enter the League of Nations in obtaining international
 peace."
 
-Mr. Spencer--, statistician.
+--- Mr. Spencer, statistician.
 
 The two sets of phrases are equally noble, equally true, and almost
 reversible. Would Clarence and Wilmot have admitted for an instant
