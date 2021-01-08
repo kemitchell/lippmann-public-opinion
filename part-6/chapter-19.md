@@ -1,3 +1,3 @@
 ---
-title: The Old Image in a New Form: Guild Socialism
+title: "The Old Image in a New Form: Guild Socialism"
 ---
